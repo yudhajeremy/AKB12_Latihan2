@@ -1,0 +1,1 @@
+# AKB12_Latihan2
